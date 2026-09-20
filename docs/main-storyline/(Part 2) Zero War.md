@@ -1,3 +1,4 @@
+# Zero War
 ## Chapter 3.1
 After the events of the previous story, Demi and Laura find themselves in a life-threatening situation, nearly drowning in the vast ocean surrounding the island as they watch it flip over. Fortunately, they're rescued just in time by some old acquaintances: The Seven. This group is determined to free the Zero Point from the Imagined Order’s control, and they want Demi and Laura’s help to achieve that goal. Laura, however, is hesitant. The Seven were responsible for putting her in a coma for an entire year. Though, she does agree to help since they share a common enemy. Demi also faces some initial distrust due to her past as a member of the IO Elite Guard, but she quickly proves her loyalty and value, earning their trust by letting her actions speak for her.
 

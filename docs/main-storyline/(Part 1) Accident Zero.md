@@ -1,3 +1,4 @@
+# Accident Zero
 ## Chapter 1
 A mysterious girl named Laura is transported to a new reality called "Reality Zero," home to the powerful Zero Point. It has specifically chosen her as its protector, the one who would control all aspects of reality, time and space, and keep the Zero Point safe from harm. Unfortunately for Laura, she materializes inside a highly secure bunker owned by a secret organization. Quickly realizing her unique nature, the organization subjects her to a series of cruel experiments, testing the limits of her abilities.
 

@@ -1,4 +1,4 @@
-# Obsidian Notes
+# Original Content Vault
 
 Publish your public notes with MkDocs
 
