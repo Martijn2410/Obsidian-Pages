@@ -1,5 +1,7 @@
 # Original Content Vault
 
+![[Lx_b.png]]
+
 Welcome to the Original Content Vault!
 
 This site acts as a database of all my OC related stuff, such as the stories and individual characters. Everything can be found here and will be updated regularly.
