@@ -1,10 +1,16 @@
 ## Basic info
 **Full name:** 
+
 **Title:** 
+
 **Age:** 
+
 **Height:** 
+
 **Gender:** Female
+
 **Pronounce:** She/Her
+
 **Sexual orientation:** asexual
 
 ## Bio

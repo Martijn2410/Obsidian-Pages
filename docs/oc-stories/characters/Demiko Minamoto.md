@@ -1,11 +1,17 @@
 ![[StoryBanners_ZeroWar.webp]]
 ## Basic info
 **Full name:** Demiko Minamoto
+
 **Title:** The Scarlet Dragon
+
 **Age:** 26 - 31
+
 **Height:** 193 cm
+
 **Gender:** Female
+
 **Pronounce:** She/Her
+
 **Sexual orientation:** Heterosexual 
 
 ## Bio

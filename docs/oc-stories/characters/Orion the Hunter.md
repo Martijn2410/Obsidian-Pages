@@ -1,10 +1,16 @@
 ## Basic info
 **Full name:** Orion
+
 **Title:** Orion the Hunter / Leader of the IO Elite Guard
+
 **Age:** 30 - 35
+
 **Height:** 210 cm
+
 **Gender:** Male
+
 **Pronounce:** He/Him
+
 **Sexual orientation:** Heterosexual 
 
 ## Bio

@@ -1,11 +1,17 @@
 ![[StoryBanners_Legends.webp]]
 ## Basic info
 **Full name:** Laura Lopez
+
 **Title:** The Omni-being / Zero Point Guardian of Time & Space
+
 **Age:** 14 - 500+ depending on the story
+
 **Height:** 183 cm
+
 **Gender:** Female
+
 **Pronounce:** She/Her
+
 **Sexual orientation:** Bisexual
 
 ## Bio
