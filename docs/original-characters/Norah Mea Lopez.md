@@ -1,11 +1,11 @@
 ## Basic info
-**Full name:** 
+**Full name:** Norah Mea Lopez
 
-**Title:** 
+**Title:** The Omega-being / Null Arbiter
 
-**Age:** 
+**Age:** 23
 
-**Height:** 
+**Height:** 176
 
 **Gender:** Female
 
@@ -35,5 +35,5 @@ Laura's death lead to the daugthers downwards spiral. A pursuit of power and con
 No more wars, no more suffering, no more conflict. Only total control for the one wielding ultimate power.
 
 ## Design Inspiration
-![[imaggskbjkde.png|277]]![[image.png|215]]![[latest.png|185]]![[ufdfuadgiuwagdu.png]]
+![[imaggskbjkde.png]]![[image.png]]![[latest.png]]![[ufdfuadgiuwagdu.png]]
 ![[rCv4usS.webp]]
