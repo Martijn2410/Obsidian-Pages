@@ -5,7 +5,7 @@
 
 **Age:** 23
 
-**Height:** 176
+**Height:** 176 cm
 
 **Gender:** Female
 
